@@ -1,1 +1,1 @@
-# -dev1G-rselProg
+# OdevGorselProg Eksikler Düzeltilecek.
