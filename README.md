@@ -1,1 +1,1 @@
-# OdevGorselProg Hocam fazla son sınıfım çok fazla dersim var bu kısmı yetiştirebildim sadece ama verdiğiniz süre içinde tamamlayacağım projeyi. Teşekkür ederim.
+# OdevGorselProg Hocam  son sınıfım çok fazla dersim var biraz eksikliklerim olabilir yardımcı olabilirseniz çok teşekkür ederim mezun olmam için son şansım.
